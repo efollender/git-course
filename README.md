@@ -1,1 +1,1 @@
-Hi, MakerSquare!
+Hey, MakerSquare!
